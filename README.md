@@ -1,0 +1,1 @@
+# dia-do-trabalhador-2026
